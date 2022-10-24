@@ -1,4 +1,4 @@
-### Olá! Eu sou o Luan Frederico 👋
+### Olá! Eu sou o Luan 👋
 
 <hr>
 
