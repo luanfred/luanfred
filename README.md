@@ -1,4 +1,4 @@
-### Olá! Eu sou o Luan 👋
+### Olá! Sou Luan 👋
 
 Eu sou o Luan Frederico, tenho 21 anos e nasci no interior de São Paulo. Atualmente, estou cursando Sistemas de Informação. Sou entusiasta em criar soluções inovadoras e transformar ideias em realidades que trazem benefícios significativos para as pessoas e a sociedade.
 
